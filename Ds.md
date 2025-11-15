@@ -1,6 +1,6 @@
 ## **Título:**
 
-Os Vingadores – A União dos Maiores Heróis da Terra.
+Os Vingadores – A União dos Maiores Heróis da Terra...
 
 ---
 
