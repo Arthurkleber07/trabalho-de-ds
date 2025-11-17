@@ -1,0 +1,115 @@
+## **Título:**
+
+Os Vingadores – A União dos Maiores Heróis da terra
+
+---
+
+## **Sinopse:**
+
+Quando ameaças gigantescas surgem e colocam o planeta em risco, heróis de diferentes origens são reunidos para formar uma equipe única: Os Vingadores.
+
+Sob a liderança de Nick Fury, eles precisam deixar suas diferenças de lado e unir forças para enfrentar inimigos poderosos, como Loki, Ultron e Thanos. A equipe aprende que, sozinhos, são fortes — mas, juntos, são a última linha de defesa da humanidade.
+
+---
+
+## **Personagens Principais:**
+
+### **1\. Homem de Ferro (Tony Stark)**
+
+Gênio, bilionário e inventor. Usa sua armadura tecnológica para lutar contra ameaças globais. Sarcástico, mas extremamente leal ao time.
+
+### **2\. Capitão América (Steve Rogers)**
+
+O primeiro Vingador. Soldado aprimorado e símbolo de liderança, coragem e justiça.
+
+### **3\. Thor**
+
+Deus do Trovão e príncipe de Asgard. Possui força sobre-humana e o poderoso martelo Mjölnir.
+
+### **4\. Viúva Negra (Natasha Romanoff)**
+
+Espiã experiente, especialista em combate corpo a corpo e infiltração.
+
+### **5\. Hulk (Bruce Banner)**
+
+Cientista brilhante que se transforma em uma criatura poderosa movida pela raiva.
+
+### **6\. Gavião Arqueiro (Clint Barton)**
+
+Mestre em arco e flecha. Guerreiro habilidoso e estrategista.
+
+### **7\. Nick Fury**
+
+Diretor da S.H.I.E.L.D. Responsável por reunir os Vingadores.
+
+---
+
+## **Curiosidades:**
+
+* O primeiro filme dos Vingadores foi lançado em 2012 e revolucionou o cinema de super-heróis.
+
+* A cena pós-créditos em que os heróis comem shawarma foi gravada no último dia e virou um dos momentos mais icônicos.
+
+* Nos quadrinhos, a formação original não incluía o Capitão América — ele entrou algumas edições depois.
+
+* Robert Downey Jr. improvisou várias falas do Homem de Ferro, inclusive algumas das mais famosas.
+
+* O grito “Vingadores, Assemble\!” só foi dito por completo nos filmes depois de anos de expectativa dos fãs.
+
+## **Título:**
+
+Os Vingadores – A União dos Maiores Heróis da Terra
+
+---
+
+## **Sinopse:**
+
+Quando ameaças gigantescas surgem e colocam o planeta em risco, heróis de diferentes origens são reunidos para formar uma equipe única: Os Vingadores.
+
+Sob a liderança de Nick Fury, eles precisam deixar suas diferenças de lado e unir forças para enfrentar inimigos poderosos, como Loki, Ultron e Thanos. A equipe aprende que, sozinhos, são fortes — mas, juntos, são a última linha de defesa da humanidade.
+
+---
+
+## **Personagens Principais:**
+
+### **1\. Homem de Ferro (Tony Stark)**
+
+Gênio, bilionário e inventor. Usa sua armadura tecnológica para lutar contra ameaças globais. Sarcástico, mas extremamente leal ao time.
+
+### **2\. Capitão América (Steve Rogers)**
+
+O primeiro Vingador. Soldado aprimorado e símbolo de liderança, coragem e justiça.
+
+### **3\. Thor**
+
+Deus do Trovão e príncipe de Asgard. Possui força sobre-humana e o poderoso martelo Mjölnir.
+
+### **4\. Viúva Negra (Natasha Romanoff)**
+
+Espiã experiente, especialista em combate corpo a corpo e infiltração.
+
+### **5\. Hulk (Bruce Banner)**
+
+Cientista brilhante que se transforma em uma criatura poderosa movida pela raiva.
+
+### **6\. Gavião Arqueiro (Clint Barton)**
+
+Mestre em arco e flecha. Guerreiro habilidoso e estrategista.
+
+### **7\. Nick Fury**
+
+Diretor da S.H.I.E.L.D. Responsável por reunir os Vingadores.
+
+---
+
+## **Curiosidades:**
+
+* O primeiro filme dos Vingadores foi lançado em 2012 e revolucionou o cinema de super-heróis.
+
+* A cena pós-créditos em que os heróis comem shawarma foi gravada no último dia e virou um dos momentos mais icônicos.
+
+* Nos quadrinhos, a formação original não incluía o Capitão América — ele entrou algumas edições depois.
+
+* Robert Downey Jr. improvisou várias falas do Homem de Ferro, inclusive algumas das mais famosas.
+
+* O grito “Vingadores, Assemble\!” só foi dito por completo nos filmes depois de anos de expectativa dos fãs.  
